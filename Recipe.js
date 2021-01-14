@@ -1,0 +1,1 @@
+take a pan and put edible oil in it and put onion and garlic in it, fry it well then put water in it and add magie masala and vegetable,after 2-3 min add maggie in it and let it boil and vegetable maggie is prepared.
